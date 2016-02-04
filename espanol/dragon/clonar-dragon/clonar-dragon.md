@@ -1,0 +1,1 @@
+pero entonces el malvado doctor ronald quizo hacer varios clones del dragon para poder venderlos al mercado de comida en Asia. Es increible que en esos lugares se coman hasta los dragones. Quizas podriamos clonarte a ti.. el que esta leyendo esto.
